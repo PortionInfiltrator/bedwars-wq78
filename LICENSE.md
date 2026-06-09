@@ -1,4 +1,4 @@
-
+bedwars automatic Scripts is the best bedwars Script, featuring auto-heal and undetectable. Safe and powerful for all your needs.
 
 
 
